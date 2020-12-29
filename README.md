@@ -1,2 +1,3 @@
 # hhbxss
-［诱导公式］(https://kdocs.cn/l/craQEcfotXON?f=201)
+[物理1-10](https://share.weiyun.com/zUFRSzaI)
+
