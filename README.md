@@ -1,16 +1,26 @@
-# hhbxss
-[物理1-10](https://share.weiyun.com/zUFRSzaI)   
-[数学必修二](https://share.weiyun.com/nLd9YB1n)   
-[数学必修一](https://share.weiyun.com/bvQRlJDS)   
-[受力分析](https://share.weiyun.com/zhXVRVOE)   
-[绳杆弹簧问题](https://share.weiyun.com/I7JzVmci)   
-[物理必修一大招](https://share.weiyun.com/QSUjSaVf)   
-[书面表达](https://share.weiyun.com/erVL3sGg)   
-[诗歌鉴赏](https://share.weiyun.com/COUXChw5)   
-[文言文真题](https://share.weiyun.com/9gwOROeN)
-[撕碎吧2020 mp3](https://share.weiyun.com/yORDxxqL)   
-[battle mp3](https://share.weiyun.com/SrYDA86O)   
-[20210110](http://6o2.cn/4Pb8I)
+# Chinese
+[Poetry-appreciation](https://share.weiyun.com/COUXChw5).  
+[Classical-Chinese](https://share.weiyun.com/9gwOROeN).
+
+# Mathematics
+[Conpulsory-2](https://share.weiyun.com/nLd9YB1n).  
+[Conpulsory-1](https://share.weiyun.com/bvQRlJDS).  
+
+# English
+[Words&Grammer-points](https://share.weiyun.com/3lk0e3l6).  
+[Written-expression](https://share.weiyun.com/erVL3sGg).  
+
+# Phycics
+[Phycics1-10](https://share.weiyun.com/zUFRSzaI).  
+[Force-Analysis](https://share.weiyun.com/zhXVRVOE).  
+[Rod&Spring](https://share.weiyun.com/I7JzVmci).  
+[Conpulsory1-skills](https://share.weiyun.com/QSUjSaVf)
+
+# Chemistry
+
+# Biology
+
+
    
       
     
