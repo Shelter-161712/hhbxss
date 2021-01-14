@@ -9,6 +9,8 @@
 # English
 [Words&Grammer-points](https://share.weiyun.com/3lk0e3l6).  
 [Written-expression](https://share.weiyun.com/erVL3sGg).  
+[Reading-high-frequency-words](https://share.weiyun.com/G2Rh0Tzp).  
+
 
 # Phycics
 [Phycics1-10](https://share.weiyun.com/zUFRSzaI).  
@@ -19,6 +21,7 @@
 # Chemistry
 
 # Biology
+[0114](https://share.weiyun.com/OhSYdz7Q)
 
 
    
