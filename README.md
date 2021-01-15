@@ -15,7 +15,8 @@
 [Words&Grammer-points](https://share.weiyun.com/3lk0e3l6).  
 [Written-expression](https://share.weiyun.com/erVL3sGg).  
 [Cloze-words](https://share.weiyun.com/mLiEHdXW).  
-[Cloze and reading comprehension](https://share.weiyun.com/MtEgAsBp)
+[Cloze and reading comprehension](https://share.weiyun.com/MtEgAsBp).  
+[Reading-high-frequency-words](https://share.weiyun.com/G2Rh0Tzp).  
 
 # Phycics
 [Phycics1-10](https://share.weiyun.com/zUFRSzaI).  
